@@ -2,7 +2,7 @@
 
 This repo will include related research about curing depression
 
-And Everyone is welcome to share your experience to help with this issue with anyone who suffer from it.
+And Everyone is welcome to share your experience to help with this issue for anyone who suffer from it.
 
 Will also include my experience and perspective as well as some simple tips on this issue.
 
